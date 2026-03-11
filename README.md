@@ -1,5 +1,5 @@
 # AFRO925<sup>TM</sup> Background 
-  ### THE PROBLEM: The great divide <sup>(and the mind shift)</sup>
+### THE PROBLEM: The great divide <sup>(and the mind shift)</sup>
 ### Divide 1:
 The Entrepreneurial Gridlock (Finance & Fear). These are the gifted and the passionate who possess the luxury of time but are paralyzed by the "What Ifs." They fear the cost of funding, the mystery of the industry, and the sting of a project that "flops" after heavy investment. They play it safe, floating through life in a "respectable hustle," while the pain of an unreleased song or an unmanifested dream rots in their heart.
 
