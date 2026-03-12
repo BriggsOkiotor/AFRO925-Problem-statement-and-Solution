@@ -11,6 +11,8 @@ At AFRO925™, we dismantled the cage causing the mind shift. We tell both sides
 
 At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes. (more here - Manifesto)
 
+![Full banner](https://github.com/user-attachments/assets/f48ab9c6-d9ec-4b0c-b7cb-5f1c65890fab)
+
 https://github.com/user-attachments/assets/afa70794-470d-4cf3-b666-406a33132851
 
 **“At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes.”**
