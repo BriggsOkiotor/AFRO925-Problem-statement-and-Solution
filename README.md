@@ -1,5 +1,8 @@
 # AFRO925<sup>TM</sup> Background 
 ### THE PROBLEM: The great divide <sup>(and the mind shift)</sup>
+
+![Three divide](https://github.com/user-attachments/assets/560610d7-dda0-4cf3-8173-c92ffbd5a001)
+
 ### Divide 1:
 ***The Gridlock of Finance & Fear.** Today, we are surrounded by a generation of the gifted and the passionate brilliant professionals and high-potential entrepreneurs who possess the luxury of time, yet remain spiritually and creatively paralyzed. They are trapped in the 'What If' Loop:
 - What if the funding never comes?
@@ -15,8 +18,23 @@ For these professionals, the gap between the Boardroom and the Studio feels like
 
 Let be clear: These people aren’t lazy; they are over-leveraged. They are giving 100% to a system that often leaves 0% for their own souls. This is why the Afro925™ Movement exists—to provide the shortcut, the community, and the environment that makes creating possible even when you are physically drained.
 
+### Divide 3:
+**The Independent Hustle.** Finally, we welcome the Independent Creator. These are the artists, entrepreneurs, and students who have already taken the leap, they have music on the streets and skin in the game. They create for the passion, yet they remain unsigned, uncompensated, and often unsupported.
+At Afro925™, we provide the community that understand, care and support. But our mission goes deeper than motivation. Our primary goal is to convert the artist into a professional.
+
 ## THE SOLUTION:
-**At AFRO925™,** we dismantled the cage, causing a mind shift. We tell both sides of the divide: Your dream, and passion deserves to manifest. Stop viewing your job as a prison; start viewing it as your First Record Label. Whether your sound "flops or pops" on the internet is secondary, what matters is that you gave your passion a shot. That attempt is your victory. It saves you from the terminal pain of regret and creates a Legacy of Audacity for your offspring. By seeing you try, they learn never to be too shy or too scared to chase their own light.
+**At AFRO925™,** We dismantled the cage, causing a mind shift. We tell trio sides of the divide: Your dream, and passion deserves to manifest. Stop viewing your job as a prison; start viewing it as your First Record Label. Whether your sound "flops or pops" on the internet is secondary, what matters is that you gave your passion a shot. That attempt is your victory. It saves you from the terminal pain of regret and creates a Legacy of Audacity for your offspring. By seeing you try, they learn never to be too shy or too scared to chase their own light.
+
+We understand fame is fleeting, but a 'Venture Capitalist' career is a shield. We ensure that if the applause fades or the revenue dips, you are never left in the darkness of depression or despair. We aren't just a network; we are a family that provides the shoulder to lean on while we aggressively support your craft. We guide you to build a career or a formal hustle that serves as your foundation and fall back support mechanism.
+
+**OUR Chant/Mantra** 
+- *Call: Afro925™*
+- Respond: Beyond the Desk, Into the Pulse. 
+- *Call: Afro925er™*
+- Respond: More than just a Genre. 
+- *Call: 925er™*
+- Respond: Your Passion deserves a Punch! 
+- **All: PUNCH IT! 👊**
 
 ![Afro925 logo](https://github.com/user-attachments/assets/4981ad4b-c802-424a-a248-87fba017b6b8)
 
