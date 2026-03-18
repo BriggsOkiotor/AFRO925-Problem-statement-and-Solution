@@ -43,3 +43,14 @@ At AFRO925 we create an enabling environment that provides the blueprint and the
 ![Full banner](https://github.com/user-attachments/assets/f48ab9c6-d9ec-4b0c-b7cb-5f1c65890fab)
 
 **“At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes.”** **Join us now,** [Support here](https://paystack.shop/pay/Fomabriggs_test_1772099793035)
+
+
+### Feel free to connect
+[YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
+
+[Twitter](https://x.com/fomabriggs)
+
+[Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
+
+
+♥️ ONE LOVE ♥️
