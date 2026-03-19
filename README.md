@@ -38,11 +38,11 @@ We understand fame is fleeting, but a 'Venture Capitalist' career is a shield. W
 
 ![Afro925 logo](https://github.com/user-attachments/assets/4981ad4b-c802-424a-a248-87fba017b6b8)
 
-At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes. **Join us now,** [Support here](https://paystack.shop/pay/Fomabriggs_test_1772099793035)
+At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes. **Join us now,** [Support here](https://paystack.shop/pay/support_afro925er-fomabriggs)
 
 ![Full banner](https://github.com/user-attachments/assets/f48ab9c6-d9ec-4b0c-b7cb-5f1c65890fab)
 
-**“At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes.”** **Join us now,** [Support here](https://paystack.shop/pay/Fomabriggs_test_1772099793035)
+**“At AFRO925 we create an enabling environment that provides the blueprint and the guidance to turn those attempts and limitations into successful, sustainable outcomes.”** **Join us now,** [Support here](https://paystack.shop/pay/support_afro925er-fomabriggs)
 
 
 ### Feel free to connect
